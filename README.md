@@ -8,7 +8,7 @@
 
 
 #### Social Links:
-- <a href="[https://www.linkedin.com/in/andresromeroh/](https://www.linkedin.com/in/derian-felipe/)">LinkedIn</a>
+-[LinkeIn](https://www.linkedin.com/in/derian-felipe/)
 
 #### Based in Heredia, Costa Rica.
 
