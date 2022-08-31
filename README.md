@@ -8,7 +8,7 @@
 
 
 #### Social Links:
--[LinkeIn](https://www.linkedin.com/in/derian-felipe/)
+-[LinkedIn](https://www.linkedin.com/in/derian-felipe/)
 
 #### Based in Heredia, Costa Rica.
 
